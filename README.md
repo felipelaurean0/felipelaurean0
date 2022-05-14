@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @felipelaurean0
-- 👀 I'm starting my studies on may 14 2022.
+- 👀 I'm starting studies on may 14 2022.
